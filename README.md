@@ -1,4 +1,4 @@
-- 👋-hi•i’m•@dea;r]
+- 👋-hi•i’m•@dea;r}
 - 👀-i’m•interested•in•viewing•informatio;n]
 - 🌱-i’m•currently•learning•at•schoo;l]
 - 💞️-i•don't•want•to•cooperat;e]
